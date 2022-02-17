@@ -14,7 +14,7 @@
 >
 > **서유림 [(ulimsss)](https://github.com/ulimsss)**
 >
-> **정사비비** 
+> **정사비비 [(JeongSabibi)](https://github.com/JeongSabibi)** 
 >
 > **신정우**
 > 
